@@ -1,1 +1,1 @@
-privacyprofessionaltraining.com
+https://www.privacyprofessionaltraining.com/
