@@ -1,1 +1,1 @@
-# privacyprofessionaltraining.com
+privacyprofessionaltraining.com
